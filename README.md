@@ -1,5 +1,7 @@
 - 👋 Hi, I’m @DUNA1313
 - 👀 I’m interested in cars
+- 📷 I'm amateur photographer
+- 💻 I'm futere UX/UI designer
 - 🌱 I’m currently learning in SUM
 - 💞️ I’m looking to collaborate on PORSCHE, свяжитесь со мной
 - 📫 How to reach me: no way
